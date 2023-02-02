@@ -1,6 +1,6 @@
 ### ◐ Hello! I am a Junior Front End Developer, excited for the future! ◑
 
-➣ 👩‍💻 I like to create, design, code, repeat.
+➣ 👩‍💻 I like to imagine, create, design, code.
 
 ➣ 🎮 Huge love for video games; from design, to stories, to playthrough
 
