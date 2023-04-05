@@ -4,9 +4,9 @@
 
 ➣ 🎮 Huge love for video games; from design, to stories, to playthrough
 
-➣ 🌪️ Currently working on all types of projects 🌪️
+➣ 🌪️ Currently working on my future.
 
-➣ 🏆 Goal: Be the person I needed when I was younger. 
+➣ 🏆 Goal: Become the person I've always wanted to be.
 
 ➣ 🎨 Been on computers and Playstations before I could walk. Maybe that's where all my creativity comes from? 
 
