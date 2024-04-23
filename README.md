@@ -1,4 +1,6 @@
-### ◐ Hello! I am a Junior Front End Developer, excited for the future! ◑
+###
+https://plus.unsplash.com/premium_photo-1678565999588-08fdd0b1410b?q=80&w=1988&auto=format&fit=crop&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8fA%3D%3D
+◐ Hello! I am a Junior Front End Developer, excited for the future! ◑
 
 ➣ 👩‍💻 I like to imagine, create, design, code.
 
