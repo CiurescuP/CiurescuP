@@ -1,6 +1,6 @@
 ###
 
-![readme](https://github.com/CiurescuP/CiurescuP/assets/102490292/4e1e171c-581f-4e12-b0f9-6a449be2b243)
+![readme](https://github.com/CiurescuP/CiurescuP/assets/102490292/4869403f-ba63-408a-97fb-1ba23c9e9181)
 
 ◐ Hello! I am a Junior Front End Developer, excited for the future! ◑
 
