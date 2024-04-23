@@ -1,5 +1,5 @@
 ###
-![readme](https://github.com/CiurescuP/CiurescuP/assets/102490292/f081de4c-5514-47fd-abc8-572b3296da73)
+![readme](https://github.com/CiurescuP/CiurescuP/assets/102490292/7484d119-c1dd-4e74-b7f8-6a89a68f5dd8)
 
 ◐ Hello! I am a Junior Front End Developer, excited for the future! ◑
 
