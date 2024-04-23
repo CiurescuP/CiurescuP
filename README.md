@@ -2,11 +2,11 @@
 
 ![readme](https://github.com/CiurescuP/CiurescuP/assets/102490292/4869403f-ba63-408a-97fb-1ba23c9e9181)
 
-◐ Hello! I am a Junior Front End Developer, excited for the future! ◑
+◐ Hi, I'm a Junior Front End Developer, excited for the future! ◑
 
-➣ 👩‍💻 I like to imagine, create, design, code.
+➣ 👩‍💻 I like to imagine, create, code, and sometimes design.
 
-➣ 🎮 Huge love for video games; from design, to stories, to playthrough
+➣ 🎮 Huge love for video games; from design, to stories, to playthrough.
 
 ➣ 🌪️ Currently working on my future.
 
