@@ -1,5 +1,4 @@
-###
-![emile-perron-xrVDYZRGdw4-unsplash](https://github.com/CiurescuP/CiurescuP/assets/102490292/dc65e2eb-0b3a-435a-9b8a-8e376192c5b8)
+###![triyansh-gill-zNoSn3mH1oY-unsplash](https://github.com/CiurescuP/CiurescuP/assets/102490292/921a97dd-9c32-4940-a97d-5ca006ed469d)
 
 ◐ Hi, I'm a Junior Front End Developer, excited for the future! ◑
 
