@@ -1,4 +1,4 @@
-###![triyansh-gill-zNoSn3mH1oY-unsplash](https://github.com/CiurescuP/CiurescuP/assets/102490292/921a97dd-9c32-4940-a97d-5ca006ed469d)
+![triyansh-gill-zNoSn3mH1oY-unsplash](https://github.com/CiurescuP/CiurescuP/assets/102490292/921a97dd-9c32-4940-a97d-5ca006ed469d)
 
 ◐ Hi, I'm a Junior Front End Developer, excited for the future! ◑
 
